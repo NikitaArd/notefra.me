@@ -16,6 +16,4 @@ If you're checking this out as a potential employer — thanks for looking! This
 
 ---
 
-## Try it out
-
-👉 [https://notefra.me](https://notefra.me)
+Thanks for checking it out 🙌
